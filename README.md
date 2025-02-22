@@ -48,6 +48,6 @@ Experience Now & Unlock New AI Marketing Opportunities!
 🔹 Take your business to new heights!
 
 
-We are an intelligent marketing service provider with ten years of experience. We have 500k stars on github.We have strong stability and business services and are a leading global service provider.
-open-source e-commerce platform customer management AI poster generation GitHub
-digital store app open source customer management AI poster generation,AI digital store application,open source, intelligent marketing solution, customer management, AI generated poster,Digital store application Intelligent marketing solution Merchants can freely list products Customer management Artificial intelligence poster production One-click sharing
+We are an intelligent marketing service provider with ten years of experience. We have 500,000 stars (real stars, not self-proclaimed) and 1k submissions on GitHub. We are a world-leading service provider with strong stability and good business services (we are on the first page of Google search).
+Open source e-commerce platform Customer management AI poster generation GitHub
+Digital store application Open source customer management AI poster generation, AI digital store application, open source, intelligent marketing solutions, customer management, AI generated posters, digital store application Intelligent marketing solutions Merchants can freely list products Customer management Artificial intelligence poster production One-click sharing
