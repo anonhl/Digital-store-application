@@ -1,5 +1,3 @@
-We are an intelligent marketing service provider with ten years of experience. We have 500k stars on github.We have strong stability and business services and are a leading global service provider.
-digital store app open source customer management AI poster generation,AI digital store application,open source, intelligent marketing solution, customer management, AI generated poster,Digital store application Intelligent marketing solution Merchants can freely list products Customer management Artificial intelligence poster production One-click sharing
 Galaxy Mall Digital Store - AI-Driven Smart Marketing Solution
 
 Market Challenges & Business Pain Points
@@ -48,3 +46,8 @@ Experience Now & Unlock New AI Marketing Opportunities!
 🔹 Break growth barriers and upgrade intelligent customer management.
 🔹 Instantly experience AI-powered marketing solutions and seize unlimited business opportunities.
 🔹 Take your business to new heights!
+
+
+We are an intelligent marketing service provider with ten years of experience. We have 500k stars on github.We have strong stability and business services and are a leading global service provider.
+open-source e-commerce platform customer management AI poster generation GitHub
+digital store app open source customer management AI poster generation,AI digital store application,open source, intelligent marketing solution, customer management, AI generated poster,Digital store application Intelligent marketing solution Merchants can freely list products Customer management Artificial intelligence poster production One-click sharing
