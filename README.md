@@ -1,4 +1,4 @@
-AI digital store application, intelligent marketing solution, customer management, AI generated poster,Digital store application Intelligent marketing solution Merchants can freely list products Customer management Artificial intelligence poster production One-click sharing
+digital store app open source customer management AI poster generation,AI digital store application, intelligent marketing solution, customer management, AI generated poster,Digital store application Intelligent marketing solution Merchants can freely list products Customer management Artificial intelligence poster production One-click sharing
 Galaxy Mall Digital Store - AI-Driven Smart Marketing Solution
 
 Market Challenges & Business Pain Points
